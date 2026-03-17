@@ -9,7 +9,7 @@
 - 1 tsp salt
 - 1/2 onion
 - 1 Tbsp cilantro
-
+- you can also add tajin
 
 ## Instructions
 
